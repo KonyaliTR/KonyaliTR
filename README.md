@@ -1,4 +1,5 @@
 # Hey, I'm [KonyaliTR](https://github.com/KonyaliTR)! 
+
 ➤ I am from Turkey and I speak Turkish and English.
 ➤ I have been around the internet and also GitHub for a long time, however this account is not really old.
 ➤ I am very inquisitive and spent almost all my youth on the internet.
